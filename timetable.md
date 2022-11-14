@@ -2,4 +2,4 @@
 
 ### 문어의 꿈 Team - Time Table
 
-![image](https://user-images.githubusercontent.com/88362207/201280635-c4eeee31-f89a-4b6e-973e-b4becc92ed63.png)
+![image](https://user-images.githubusercontent.com/88362207/201579959-10bf414b-d0c0-4278-b058-2edf31f7159f.png)
